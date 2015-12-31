@@ -20,6 +20,9 @@ ex: 1.7 - represents chapter 1 problem 7
 
 ###Contact
 [Email](hello@andrewoodleyjr.com)
+
 [Instagram](https://instagram.com/andrewoodlejr)
+
 [Twitter](https://twitter.com/andrewoodlejr)
+
 Other social media @andrewoodleyjr
